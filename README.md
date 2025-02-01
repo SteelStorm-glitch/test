@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SteelStorm-glitch
+- 👀 I’m interested in programming in Python and am currently just learning
+- 🌱 I’m currently learning in Python
+- 💞️ I’m looking to collaborate on not needed yet
+- 📫 How to reach me kuzmicevartem509@gmail.com
+- ⚡ Fun fact: I love playing War Thunder! and Wot Blitz, as well as horror games and spend about 3-4 hours studying in Python
